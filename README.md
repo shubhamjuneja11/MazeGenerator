@@ -1,2 +1,2 @@
 # MazeGenerator
-![Screeshot](https://giphy.com/gifs/3ohhwFLbroCrj8aQne)
+![Screeshot](https://gfycat.com/gifs/detail/AnnualWelloffFennecfox)
